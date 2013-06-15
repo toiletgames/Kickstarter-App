@@ -13,6 +13,9 @@ in the future? in the present?
 LORD Styled? http://en.wikipedia.org/wiki/Legend_of_the_Red_Dragon
 http://lord.lordlegacy.com
 
+Play as a zombie or play as a survivor
+Medieval zombie?
+
 
 
 
